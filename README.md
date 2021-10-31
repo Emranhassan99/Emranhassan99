@@ -1,4 +1,5 @@
-https://pbs.twimg.com/profile_banners/1442683015247933442/1635696806/600x200
+
+![bBack and Yellow  Personal Trainer Linkedin Banner](https://user-images.githubusercontent.com/90118958/139593486-d3b721e0-7c8e-4041-a36e-9a065362aed9.png)
 
 ### Hi there 👋, Hi, I'm Emran Hassan
 
