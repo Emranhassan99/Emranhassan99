@@ -1,4 +1,4 @@
-(https://pbs.twimg.com/profile_banners/1442683015247933442/1635696806/600x200)
+https://pbs.twimg.com/profile_banners/1442683015247933442/1635696806/600x200
 
 ### Hi there 👋, Hi, I'm Emran Hassan
 
