@@ -3,8 +3,7 @@
 
 ### 👋, Hi, I'm Emran Hassan
 
-#### 👑 I am
- Flutter Developer
+#### 👑 I am Flutter Developer
 #### 🖊️ Love to write code 
 #### 🎤 Like to share my knowledge
 
